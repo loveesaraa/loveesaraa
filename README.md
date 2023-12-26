@@ -1,4 +1,4 @@
 - ♡ hey, i'm sara!
 - ♤ 18 | she/her | female
 - ◇ i write, sing and produce music - i read and write books - i watch anime and read manga & manhwa - i play games (persona, valorant, final fantasy, fatal frame, honkai star rail, borderlands and more!)
-- ♧ if you thinki seem interesting, feel free to reach out to me here or on discord (loveesaraa)
+- ♧ if you think i seem interesting, feel free to reach out to me here or on discord (loveesara)
